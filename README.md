@@ -1,0 +1,2 @@
+# kristuper
+FREE DIAMONDS 99999999
